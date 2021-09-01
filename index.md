@@ -1,4 +1,4 @@
-# 陳信睿(https://joshua-likes-bashing.github.io/)
+[陳信睿](joshua-likes-bashing.github.io/)
 
 
 
